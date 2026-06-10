@@ -2,15 +2,13 @@
 
 ## 官方访问链接
 
-最新官网：[yftg1.com](https://yftg1.com/register?code=o60AZIA3)
+最新官网：[点击进入 ml.yfqz1.net](https://ml.yfqz1.net/register?code=o60AZIA3)
 
 备用入口1：[yf9p8.net](https://yf9p8.net/register?code=o60AZIA3)
 
 备用入口2：[yangfanhome.com](https://yangfanhome.com/register?code=o60AZIA3)
 
-备用入口3：[yfn42.net](https://yawtt.net/register?code=o60AZIA3)
-
-备用入口4：[yangfanyy.net](https://yaftt.net/register?code=o60AZIA3)
+备用入口3：[yangfanyy.net](https://yaftt.net/register?code=o60AZIA3)
 
 ---
 
@@ -27,7 +25,7 @@
 🎉 **2026年包年优惠活动** 🎉
 
 - **优惠内容：** 包年套餐7折优惠
-- **优惠码：** ```618```
+- **优惠码：** ```yf6189```
 
 ---
 
